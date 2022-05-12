@@ -1,1 +1,1 @@
-# DanilGhost-github.com
+# DanilGhost.github.io
